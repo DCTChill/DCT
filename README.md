@@ -1,0 +1,2 @@
+# DCT
+Người bình thường
